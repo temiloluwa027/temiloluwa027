@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @temiloluwa027
+- 👀 I’m interested in product design and marketing
+- 🌱 I’m currently learning product design
+- 📫 reach me at temiadesoro@gmail.com
